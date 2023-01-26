@@ -23,7 +23,7 @@ to avoid detection.
 
 most recent update - 23/1/23 6:43 GBT
 
-![image](https://user-images.githubusercontent.com/123630885/214891588-632ede7e-98be-4356-92c3-bc022bd387f2.png)**-new roblox account, 0.38 to 40k+**
+![image](https://user-images.githubusercontent.com/123630885/214891588-632ede7e-98be-4356-92c3-bc022bd387f2.png)  **-new roblox account, 0.38 to 40k+**
 
 
-![image](https://user-images.githubusercontent.com/123630885/214891797-f3b7fb8e-078f-441c-b2dc-e184f40e821c.png)**layout of predictor, update coming soon**
+![image](https://user-images.githubusercontent.com/123630885/214891797-f3b7fb8e-078f-441c-b2dc-e184f40e821c.png)  **-layout of predictor, update coming soon**
