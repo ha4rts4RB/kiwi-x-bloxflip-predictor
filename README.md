@@ -20,6 +20,9 @@ Don't use it to blatantly as the staff may catch on as the predictor is
 extremely accurate, gamble every now and then and gamble low amounts sometimes
 to avoid detection.
 
+https://cdn.discordapp.com/attachments/1059162471354597416/1059198462920495234/image.png
 
+https://cdn.discordapp.com/attachments/1059162471354597416/1059202224447823882/image.png
 
 most recent update - 23/1/23 6:43 GBT
+
